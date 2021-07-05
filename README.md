@@ -1,10 +1,5 @@
 ### Hi there 👋
 
-<!--
-**alfonsorinconbarrera/alfonsorinconbarrera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on  teledetección aplicda a cambio climático
 - 🌱 I’m currently learning  machine learnig
 - 👯 I’m looking to collaborate  en conocimiento
