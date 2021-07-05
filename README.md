@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me:  rinconbarrera@gmial.com,  https://www.linkedin.com/in/alfonso-rinc%C3%B3n-barrera-07002685/
 - 😄 Pronouns:  rinconbarrera
 - ⚡ Fun fact: ...
--->
