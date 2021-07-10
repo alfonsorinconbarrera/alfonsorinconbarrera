@@ -1,10 +1,10 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on  teledetección aplicda a cambio climático
-- 🌱 I’m currently learning  machine learnig
-- 👯 I’m looking to collaborate  en conocimiento
-- 🤔 I’m looking for help wit
+- 🔭 Trabajando en  teledetección aplicada a cambio climático
+- 🌱 Estudiando en machine learnig
+- 👯 Busco colaborar  en conocimiento
+- 🤔 Estoy buscando colaboración con innovación
 - 💬 Ask me 
-- 📫 How to reach me:  rinconbarrera@gmial.com,  https://www.linkedin.com/in/alfonso-rinc%C3%B3n-barrera-07002685/
-- 😄 Pronouns:  rinconbarrera
-- ⚡ Fun fact: ...
+- 📫 Cómo contactarme:  rinconbarrera@gmial.com,  https://www.linkedin.com/in/alfonso-rinc%C3%B3n-barrera-07002685/
+- 😄 Pronombres:  rinconbarrera
+- ⚡ Dedicación: great inspiration by DARC
