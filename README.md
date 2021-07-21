@@ -5,6 +5,6 @@
 - 👯 Busco colaborar  en conocimiento
 - 🤔 Estoy buscando colaboración con innovación
 - 💬 Ask me 
-- 📫 Cómo contactarme:  rinconbarrera@gmial.com,  https://www.https://www.youtube.com/channel/UCxX22AFQJqTqBXsMPZRo9tg
+- 📫 Cómo contactarme:  rinconbarrera@gmial.com,  https://www.youtube.com/channel/UCxX22AFQJqTqBXsMPZRo9tg
 - 😄 Pronombres:  rinconbarrera
 - ⚡ Dedicación: great inspiration by DARC
