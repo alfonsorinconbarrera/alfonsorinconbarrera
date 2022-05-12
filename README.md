@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Alfonso Rincón Barerra
+
 - 🔭 Trabajando en  teledetección aplicada a cambio climático
 - 🌱 Estudiando en machine learnig
 - 👯 Busco colaborar  en conocimiento
