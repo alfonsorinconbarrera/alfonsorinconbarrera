@@ -9,4 +9,4 @@ Alfonso Rincón Barerra
 - 💬 Ask me 
 - 📫 Cómo contactarme:  rinconbarrera@gmial.com,  https://www.youtube.com/channel/UCxX22AFQJqTqBXsMPZRo9tg
 - 😄 Pronombres:  rinconbarrera
-- ⚡ Dedicación: great inspiration by DARC
+- ⚡ Dedicación: a Diego Alfonso por su gran inspiración
