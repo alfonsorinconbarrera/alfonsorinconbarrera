@@ -7,6 +7,6 @@ Alfonso Rincón Barerra
 - 👯 Busco colaborar  en conocimiento
 - 🤔 Estoy buscando colaboración con innovación
 - 💬 Ask me 
-- 📫 Cómo contactarme:  rinconbarrera@gmial.com
+- 📫 Cómo contactarme:  rinconbarrera@gmail.com
 - 😄 Pronombres:  rinconbarrera
 - ⚡ Dedicación: a Diego Alfonso por su gran inspiración
