@@ -9,5 +9,6 @@ Alfonso Rincón Barerra
 - 📫 Cómo contactarme:  rinconbarrera@gmail.com
 - 🌐 [estudioiambiental.com](https://estudioiambiental.com/)
 - 👁‍🗨 Linkedin https://www.linkedin.com/in/rinconbarrera/
+  
 - 😄 Pronombres:  rinconbarrera
 - ⚡ Dedicación: a Diego Alfonso por su gran inspiración
