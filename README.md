@@ -7,5 +7,7 @@ Alfonso Rincón Barerra
 - 👯 Busco colaborar  en conocimiento
 - 🤔 Estoy buscando colaboración con innovación
 - 📫 Cómo contactarme:  rinconbarrera@gmail.com
+- 🌐 estudioiambiental.com
+- 👁‍🗨 Linkedin https://www.linkedin.com/in/rinconbarrera/
 - 😄 Pronombres:  rinconbarrera
 - ⚡ Dedicación: a Diego Alfonso por su gran inspiración
